@@ -1,4 +1,4 @@
-👋 Hi, I’m @n-rosi, many people call me Niky 
+👋 Hi, I’m @n-rosi, many people call me Niky. 
 
 💞️ My main interests are Computer Science, Physics and Renewable Energy. Additionally, I would love to deepen the world of Quantum Computing in my next future. 
 
